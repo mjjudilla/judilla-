@@ -1,2 +1,0 @@
-# judilla-
-my resume 
